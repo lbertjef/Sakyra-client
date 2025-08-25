@@ -1,2 +1,3 @@
 # Sakyra-client
-1 8 9 minecraft cheat \ майнкрафт чит на версию 1 8 9 
+читы и ресурс паки тут - https://discord.gg/9wZVbEwa
+<img width="1920" height="930" alt="image_1" src="https://github.com/user-attachments/assets/fdbab700-6012-467b-9f35-5cdfea0860d9" />
