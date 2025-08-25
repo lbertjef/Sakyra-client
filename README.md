@@ -1,5 +1,5 @@
 # Sakura-client
-download sakura client -  https://discord.gg/9wZVbEwa
+download sakura client - https://discord.gg/mVFemyCBzX
 
 video review - https://youtu.be/PKbfzOIC7Aw?si=Z-n4pO3zDMJnEOAz
 
